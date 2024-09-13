@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Codathan
+- 👀 I’m interested in: Sci-Fi movies, Sonic and Mario games, drawing, and learning languages!
+- 🌱 I’m currently learning: C, Lua, and Japanese :D
+- 💞️ I’m looking to collaborate on: nothing yet, but maybe after I'm finished with my courses!
+- 📫 How to reach me: 
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: I'm a Taurus! 🐮
